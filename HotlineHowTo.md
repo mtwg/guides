@@ -1,4 +1,6 @@
-## Who Calls a Jail Support Hotline? tip: Not just protestors from jail!
+## Who Calls a Jail Support Hotline?
+
+> tip: Not just protestors from jail!
 
 - Demonstrators, activists, etc in various stages of detainment, processing or arrest
 - Members of affinity groups, family, friends of people who have or they suspect have been detained or arrested
